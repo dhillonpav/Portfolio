@@ -1,5 +1,6 @@
 # portfolio
-![Uploading image.png…]()
+![20240107_140157](https://github.com/dhillonpav/portfolio/assets/88547270/06f93192-17a1-469d-bc0b-31c0e4922883)
+
 
 #CV
 Pavinder dhillon
